@@ -1,3 +1,0 @@
-# itung-wr
-Tes
-anuu
